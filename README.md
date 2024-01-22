@@ -1,4 +1,4 @@
 # Adriana Gómez Prada
 ## Geologist
 
-[Geopark Website](https://www.geo-park.com/es/)
+[Adriana's LinkedIn profile](www.linkedin.com/in/adriana-gómez-prada-518a4083)
